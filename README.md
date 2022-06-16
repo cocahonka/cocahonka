@@ -1,6 +1,6 @@
 ## Hello @everyone who isn't a hater 🥶
 
-* Ivan 16 y.o.
+* Ivan 17 y.o.
 * Backend psycho btw.
 * Mobile developer && Server backend
 
